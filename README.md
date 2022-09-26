@@ -3,7 +3,7 @@
 👀 I’m interested in graphic design, photography, brand design, web design, entrepreneurship and tech!
 
 
-🌱 I’m currently studying at the University of Western Australia, completing my Bcom in FInance and Marketing, as well as the Coding Bootcamp to become a full stack web developer!
+🌱 I’m currently studying at the University of Western Australia, completing my Bcom in Finance and Marketing, as well as the Coding Bootcamp to become a full stack web developer!
 
 💞️ I’m looking to collaborate on anything that I can learn from! I am very interested in developing my uderstanding of the developer space and would lvoe to expand my knoweledge base!
 
